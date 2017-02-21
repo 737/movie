@@ -1,2 +1,7 @@
-# movie
-movie magnet
+# 声明
+
+> Magnet均来自互联网
+> 
+> 持续更新
+
+
